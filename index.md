@@ -3,7 +3,7 @@
 
 ### 3.第9届 HK Moontrekker Sunrise 43
 
-赛事：香港的大屿山进行，在梅窝起跑，途经海拔935米主峰凤凰山，终点则设置在贝澳泳滩。同时举办赛中赛 Intel 速攀奖（凤凰山）。
+赛事：香港的大屿山进行，在梅窝起跑，途经海拔935米主峰凤凰山，终点则设置在贝澳泳滩。同时举办赛中赛 Intel 速攀奖（凤凰山）—— The Great Ascent by INTEL, hike CP4 to Summit in 60 minutes or less.
 网站：http://www.barclaysmoontrekker.com/en/the-course/sunrise-403.html
 
 日期：17.Oct。
